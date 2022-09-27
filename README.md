@@ -10,3 +10,8 @@ now they are obsoleted but sometimes works when I am not aware just like Quantum
 I have promised to declare method of lottery prediction after fail my methods to win
 
 these methods are invented by Lee Ho Yeung , Last name is Lee between 2018 and 2021
+
+
+one day you copied from me 
+you forever copied from
+you all are the real copy cats
